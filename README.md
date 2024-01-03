@@ -1,1 +1,1 @@
-Please include a short introduction of yourself. 
+Please kindly provide a short introduction of yourself. 
